@@ -1,1 +1,1 @@
-[![Discord Presence](https://lanyard.cnrad.dev/api/https://discord.com/invite/lanyard)](https://discord.com/users/https://discord.com/invite/lanyard)
+[![Discord Presence](https://lanyard.cnrad.dev/api/987438060327280660)](https://discord.com/users/987438060327280660)
